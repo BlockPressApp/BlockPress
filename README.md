@@ -14,3 +14,8 @@ Join our beta -- www.BlockPress.com
 * https://twitter.com/TheBlockPress
 
 * https://t.me/joinBlockPress
+
+* https://medium.com/@BlockPress and https://medium.com/BlockPress
+
+* https://reddit.com/r/BlockPressApp
+
